@@ -1,0 +1,4 @@
+-- Virüs Korumasını Kapatmayı Unutmayın
+-- Dosya Co Linkinden İndirip Açıyorsunuz
+-- Sınırsız Rc Sizin Oluyor
+- DİSCORD - YYLOTS TELEGRAM - @exelaaxd
